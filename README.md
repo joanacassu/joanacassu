@@ -1,4 +1,4 @@
-## Boas Vindas ao Meu Perfil 💙
+## Boas Vindas ao Meu Perfil 💚
 
 
 Meu nome é Joana Cassú
